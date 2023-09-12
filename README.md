@@ -1,0 +1,1 @@
+# TEXOSMOTR_APP
